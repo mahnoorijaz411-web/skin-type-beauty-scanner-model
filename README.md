@@ -1,0 +1,1 @@
+# skin-type-beauty-scanner-model
